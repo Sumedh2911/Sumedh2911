@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science
 - 🌱 I’m currently learning Artificial intelligence and data science degree
 - 💞️ I’m looking to collaborate who can explore my knowlege at next level
-- 📫 How to reach me on e-mail(dhangarsumedh@82gmail.com)
+- 📫 How to reach me on e-mail(dhangarsumedh@gmail.com)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: a sleepy dude that increase my Enegry
 
